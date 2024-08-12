@@ -1,5 +1,3 @@
-# Leonardo AI Promo Code 2024
-Leonardo AI Promo Code 2024 - 60% OFF Coupon Code Exclusive Discount
 # Leonardo AI Promo Code 2024 - 60% OFF Coupon Code Exclusive Discount
 
 ## Leonardo AI
