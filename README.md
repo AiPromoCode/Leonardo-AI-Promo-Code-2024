@@ -1,4 +1,4 @@
-# Leonardo AI Promo Code 2024 - 60% OFF Coupon Code Exclusive Discount
+# Leonardo AI Promo Code 2025 - 60% OFF Coupon Code Exclusive Discount
 
 ## Leonardo AI
 Are you looking to take your creative projects to the next level? With Leonardo AI, you can harness the power of artificial intelligence to transform your artistic process. And the best part? You can do it all at a discounted rate with the exclusive Leonardo AI promo code. Let's dive into why Leonardo AI is the perfect tool for artists, designers, and innovators.
